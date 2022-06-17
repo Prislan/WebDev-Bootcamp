@@ -26,6 +26,12 @@ but i guess i will see.
 
 -----------------------------------
 
+wip - June 16th, 2022
 
+going well i think, i am enjoying html quite a bit.
+
+i'm hoping to like css even more. kinda cant wait for that section.
+
+------------------------------------
 
 
